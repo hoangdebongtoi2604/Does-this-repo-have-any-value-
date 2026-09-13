@@ -6,6 +6,4 @@ Giải trí 1 chút sau kì PTITCTF2026 mệt mỏi
 
 From Chiensidongbang and Akai0x45 with love
 
-Nothing here bro
 
-AeKiE
